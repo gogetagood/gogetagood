@@ -1,7 +1,7 @@
 - 👋 bye, I’m @gogetagood
 - 👀 I’m interested in roblox studio and minecraft education
 - 🌱 I’m currently learning how to be an impostor
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate with hot sukuna girl 
 - 📫 How to reach me: idk
 - 😄 Pronouns: i like sol's RNG
 - ⚡ Fun fact: you are impostor
